@@ -1,0 +1,1 @@
+Dekbo TV - Movies App / Tv Series / Live Channel This app is that allows you to watch and download movies, tv series and tv channels. Watch Online TV-Channels, Movies, Web Series & TV-Shows exclusively on Dekbo TV App.
